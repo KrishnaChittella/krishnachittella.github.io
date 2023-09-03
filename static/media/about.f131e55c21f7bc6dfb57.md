@@ -37,7 +37,3 @@ Ask me in person for other stories that I'm afraid to share with the internet.
 - always finding inspiration.
 - enabling a brighter future.
 - doing better.
-
-# Websites from people I admire
-
-- [Michael D'Angelo](https://mldangelo.com/)
